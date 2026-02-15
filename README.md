@@ -1,2 +1,2 @@
 # summer_learns
-<p> pls do smtg </p>
+<p> please do something useful ....</p>
